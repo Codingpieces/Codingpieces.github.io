@@ -1,2 +1,2 @@
 # Codingpieces.github.io
-just a page to make werd things and learn
+just a page to make weird things and learn
